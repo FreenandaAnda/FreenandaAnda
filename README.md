@@ -1,4 +1,6 @@
-### Hi there 👋
+### Hi there 👋 This is Fernanda Cortes a cibersecurity analyst with experience in costumer service. Currently Im a freelancer working online at the same time that I keep learning new skills in the technology world. 
+
+Acompañame en esta aventura
 
 <!--
 **FreenandaAnda/FreenandaAnda** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
