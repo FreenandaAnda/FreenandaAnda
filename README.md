@@ -1,4 +1,4 @@
-### Hi there 👋 This is Fernanda Cortes a cibersecurity analyst with experience in costumer service. Currently Im a freelancer working online at the same time that I keep learning new skills in the technology world. Join me in this new adventure!
+### Hi there 👋 This is Fernanda Cortes a super junior cibersecurity analyst with experience in costumer service. Currently working as a gym instructor while improving my skills in the online world. Join me in this new adventure!
 
 
 
